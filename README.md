@@ -1,2 +1,2 @@
 # People-for-people-
-Population forgot where to sendthe Devils.
+Population forgot where to send the Devils when they are naughty.
